@@ -1,0 +1,1 @@
+# Felipe_Steudel-Strategic_Thinking-CA2
